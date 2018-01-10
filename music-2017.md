@@ -6,7 +6,8 @@ call it a best of, and it's not in any particular order - mostly just the things
 I found most notable, or ended up coming back to the most. Missing from this
 list is a whole pile of fantastic techno, shaken to the surface in an email
 thread bubbling since last winter - I only included a few more album-like
-releases on here.
+releases on here. Also missing - a bunch of pop music (Charli XCX, e.g.)
+that I played to death but didn't really remember as albums.
 
 
 ### Albums
@@ -39,7 +40,7 @@ Stromboli - Volume Uno [Maple Death Records]
 
 Claude Speeed - Infinity Ultra [Planet Mu]
 
-Second Woman - S_W [Spectrum Spools]
+Second Woman - S/W [Spectrum Spools]
 
 Sciahri - Quiet Witness [Black Opal]
 
@@ -127,7 +128,7 @@ Ato Vari - Brevis [Posh Isolation]
 
 Age Coin - Performance [Posh Isolation]
 
-Alberich \_ Lussuria - Borgia [Hospital Productions]
+Alberich & Lussuria - Borgia [Hospital Productions]
 
 Arca - Arca [XL Recordings]
 
@@ -182,21 +183,17 @@ DVS1 \@ mobius cycles warehouse, Seattle *(just 7 or so hours of DVS1...)*
 Hospital Records Anniversary (but esp. Rainforest Spiritual Enslavement,
 Geography of Hell, Orphx \@ Warsaw, Brooklyn
 
- 
+
 
 ### Labels
 
 Yerevan Tapes
-
 Ge-stell
-
 Hospital Productions
-
 Janushoved
-
 (and as usual, PAN, Posh Isolation, Shelter Press)
 
- 
+
 
 ### Most time on record player
 
