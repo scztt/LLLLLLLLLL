@@ -8,7 +8,6 @@ list is a whole pile of fantastic techno, shaken to the surface in an email
 thread bubbling since last winter - I only included a few more album-like
 releases on here.
 
- 
 
 ### Albums
 
@@ -154,8 +153,8 @@ Golden Offence Orchestra - Ode To Pauline Oliveros  [XKatedral]
 
 ### Performances
 
-DJ Richard \@ Kremwerk, Seattle (first show of the year, a lovely friend visit,
-and a killer set)
+DJ Richard \@ Kremwerk, Seattle *(first show of the year, a lovely friend visit,
+and a killer set)*
 
 Pharmakon \@ Berghain, Berlin
 
