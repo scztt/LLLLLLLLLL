@@ -1,7 +1,7 @@
 **RECORDS**
 
 Art Crime - A Constant Lack [Klammklang Tapese]
-[https://soundcloud.com/art-crime/sets/a-constant-lack]
+https://soundcloud.com/art-crime/sets/a-constant-lack
 
 Aseptic Stir - Year of Detachment [Klammklang Tapes]
 https://asepticstir.bandcamp.com/album/year-of-detachment
