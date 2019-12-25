@@ -1,6 +1,6 @@
 **RECORDS**
 
-Art Crime - A Constant Lack [Klammklang Tapese]
+Art Crime - A Constant Lack [Klammklang Tapes]
 
 Aseptic Stir - Year of Detachment [Klammklang Tapes]
 
